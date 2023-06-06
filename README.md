@@ -14,6 +14,8 @@
 
   - whatsapp自動客服機器人
   - 自動獲取FACEBOOK公開群的相關廣告資料
+  - 自動下載網頁模板
+  - 將 Python.py 封裝exe
 
 
 ---
