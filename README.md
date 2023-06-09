@@ -25,7 +25,9 @@
 ---
 
 
-[![如何使用 ATW 商店輔助程式]([https://img.youtube.com/vi/Ld-Mnn_7BE0/0.jpg](https://i.ytimg.com/an_webp/WT7Zqc2Nz-0/mqdefault_6s.webp?du=3000&sqp=CI3liqQG&rs=AOn4CLBq_QqrQqLYLN8lccxJ_vQlV7M6Nw))](https://youtu.be/WT7Zqc2Nz-0)
+[![如何使用 ATW 商店輔助程式](https://i.ytimg.com/an_webp/WT7Zqc2Nz-0/mqdefault_6s.webp?du=3000&sqp=CI3liqQG&rs=AOn4CLBq_QqrQqLYLN8lccxJ_vQlV7M6Nw)](https://youtu.be/WT7Zqc2Nz-0)
+
+
 
 
 ---
