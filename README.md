@@ -43,6 +43,31 @@ ATW商店輔助程式是一款協助中小企業處理日常運營的軟件。�
 
 不要讓重複性任務阻礙您的業務發展！! 立即嘗試ATW商店輔助程式，簡化您的日常運營。
 
+--
+
+
+ATW Store Assistant is a software that assists small and medium enterprises to handle their daily operations. Its features include:
+
+• WhatsApp auto reply bot
+
+• Automatically capture Facebook group related advertising data
+
+• Automatic download of web page templates
+
+-- More features are under development
+With a monthly fee of 600 yuan, this program will help you solve the pain points of repetitive manual work.
+
+With ATW Store Assistant, businesses can automatically respond to customer WhatsApp inquiries, save time searching for relevant advertising information in Facebook groups, and easily download web page templates for their online stores.
+
+Don't let repetitive tasks hold you back from growing your business! ! Try ATW Store Assistant now and simplify your daily operations.
+
+
+
+
+
+
+
+---
 
 ### 如何使用 ATW 商店輔助程式
 
