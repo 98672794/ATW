@@ -82,6 +82,12 @@ Don't let repetitive tasks hold you back from growing your business! ! Try ATW S
 
 [![ATWwhatsapp自動覆客機器人效果](如何ATWwhatsapp自動覆客機器人效果.gif)](https://youtu.be/-md4UpC3Fnk)
 
+### ATW自動獲取FACEBOOK公開群的相關廣告資料效果
+
+[![ATW自動獲取FACEBOOK公開群的相關廣告資料效果](如何ATW自動獲取FACEBOOK公開群的相關廣告資料效果.gif)](htt4)
+
+
+
 ---
 
 
