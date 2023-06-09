@@ -72,11 +72,12 @@ Don't let repetitive tasks hold you back from growing your business! ! Try ATW S
 
 ### 如何使用 ATW 商店輔助程式
 
-[![如何使用 ATW 商店輔助程式](%E5%A6%82%E4%BD%95%E4%BD%BF%E7%94%A8ATW%E5%95%86%E5%BA%97%E8%BC%94%E5%8A%A9%E7%A8%8B%E5%BC%8F.gif)](https://youtu.be/WT7Zqc2Nz-0)
+[![如何使用 ATW 商店輔助程式](如何使用ATW商店輔助程式.gif)](https://youtu.be/WT7Zqc2Nz-0)
 
 ### ATWwhatsapp自動覆客機器人製作回覆內容
 
-https://youtu.be/oeH-6f059Nw
+[![如何使用 ATW 商店輔助程式](ATW whatsapp自動覆客機器人 製作回覆內容.gif)](https://youtu.be/oeH-6f059Nw)
+
 
 
 ---
