@@ -84,7 +84,7 @@ Don't let repetitive tasks hold you back from growing your business! ! Try ATW S
 
 ### ATW自動獲取FACEBOOK公開群的相關廣告資料效果
 
-[![ATW自動獲取FACEBOOK公開群的相關廣告資料效果](如何ATW自動獲取FACEBOOK公開群的相關廣告資料效果.gif)](htt4)
+[![ATW自動獲取FACEBOOK公開群的相關廣告資料效果](如何ATW自動獲取FACEBOOK公開群的相關廣告資料效果.gif)](https://youtu.be/OSPR32X_sME)
 
 
 
