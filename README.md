@@ -56,7 +56,7 @@ ATW Store Assistant is a software that assists small and medium enterprises to h
 
     -- More features are under development
     
-With a monthly fee of 600 yuan, this program will help you solve the pain points of repetitive manual work.
+With a monthly fee of $600 , this program will help you solve the pain points of repetitive manual work.
 
 With ATW Store Assistant, businesses can automatically respond to customer WhatsApp inquiries, save time searching for relevant advertising information in Facebook groups, and easily download web page templates for their online stores.
 
