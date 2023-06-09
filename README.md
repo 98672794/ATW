@@ -5,11 +5,11 @@
 
 ### ATW 下載
 
-[pc](https://github.com/98672794/ATW/raw/main/ATW202306082216.exe)
+[pc](https://github.com/98672794/ATW/raw/main/ATW202306100433.exe)
 
 
 
-##### 更新日期 202306082216 
+##### 更新日期 202306100433 
 
 [購買VIP](https://wa.me/85298672794?text=查詢ATW商店輔助程式)
 
