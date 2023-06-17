@@ -40,9 +40,11 @@ ATW商店輔助程式是一款協助企業處理日常運營的軟件。其功�
 ### 顧客的話
 
 
+
 廣告製作:
 
     ATW可以用來寫作、翻譯、潤色句子、查詢問題、文章分類、閱讀理解、文本摘要等，實在非常方便。
+
 
 
 freelance programmer:
@@ -53,6 +55,11 @@ freelance programmer:
     has chatGPT verification code, and the service fee is cheap, 
     highly recommended.
 
+
+跳舞導師及美甲師:
+
+    ATW幫我自動約客戶在學生,可以自動寫宣傳文,方便實用!
+    
 
 人力資源:
 
