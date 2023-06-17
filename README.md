@@ -41,10 +41,12 @@ ATW商店輔助程式是一款協助企業處理日常運營的軟件。其功�
 
 
 廣告製作:
+
     ATW可以用來寫作、翻譯、潤色句子、查詢問題、文章分類、閱讀理解、文本摘要等，實在非常方便。
 
 
 freelance programmer:
+
     ATW can help me find recruitment information,
     can automatically reply to customers on whatsapp,
     has a short URL function to count customer inquiries, 
@@ -53,11 +55,13 @@ freelance programmer:
 
 
 人力資源:
+
     ATW可以幫我搜尋招聘網站，直接將精英員工資料發送俾需要嘅公司。 
     客戶查詢又有自動回覆，保證秒回顧客，客戶感到受重視，對我們品牌更有好感。
 
 
 油糧食品:
+
     我做開油糧生意，但呢盤生意其實非常困身，連個女家長日我都冇時間去...
     因為我一直又送貨又要人手喺網上搜集餐廳資料，再人手send產品資料去搵新客。
     仲要時時睇實個ws，24小時覆客。
