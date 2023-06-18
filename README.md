@@ -5,7 +5,7 @@
 
 ### ATW 下載
 
-[pc](https://github.com/98672794/ATW/raw/main/ATW202306150215.exe)
+[pc](https://github.com/98672794/ATW/raw/main/ATW202306181934.exe)
 
 
 
@@ -26,6 +26,8 @@ ATW商店輔助程式是一款協助企業處理日常運營的軟件。其功�
     - 自動下載網頁模板
     
     - 生成短網址(bitly)
+
+    - 編輯圖片、影片
     
     - chatGPT
       
