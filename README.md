@@ -3,13 +3,13 @@
   自動搵客 自動覆客 自動請人 自動網宣
 
 
-### [pc下載](https://github.com/98672794/ATW/raw/main/ATW202306181934.exe)
+### <p align='right'>[pc下載](https://github.com/98672794/ATW/raw/main/ATW202306181934.exe)</p>
 
 
 
 ##### 更新日期 202306181934 
 
-[查詢 / 購買VIP](https://wa.me/85298672794?text=查詢ATW商店輔助程式)
+<p align='right'>[查詢 / 購買VIP](https://wa.me/85298672794?text=查詢ATW商店輔助程式)</p>
 
 ---
 
