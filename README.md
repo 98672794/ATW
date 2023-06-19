@@ -9,7 +9,7 @@
 
 ##### 更新日期 202306181934 
 
-<p align='right'>[查詢 / 購買VIP](https://wa.me/85298672794?text=查詢ATW商店輔助程式)</p>
+<p align='right'> [查詢/購買VIP](https://wa.me/85298672794?text=查詢ATW商店輔助程式) </p>
 
 ---
 
