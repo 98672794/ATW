@@ -9,7 +9,7 @@
 
 
 ##### <p align='right'>更新日期 202306181934 </p>
-#### <p align='right'>[購買VIP](https://wa.me/85298672794?text=ATW自動賺錢機器人購買VIP)</p>
+#### <p align='right'>[購買VIP](https://wa.me/85255258378?text=ATW自動賺錢機器人購買VIP)</p>
 
 
 ---
