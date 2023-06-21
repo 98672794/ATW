@@ -3,12 +3,12 @@
   自動搵客 自動覆客 自動請人 自動網宣
 
 
-### <p align='center'>[pc下載](https://github.com/98672794/ATW/raw/main/ATW-202306192111.exe)</p>
+### <p align='center'>[pc下載](https://github.com/98672794/ATW/raw/main/ATW-202306211243.exe)</p>
 
 
 
 
-##### <p align='right'>更新日期 202306181934 </p>
+##### <p align='right'>更新日期 202306211243 </p>
 #### <p align='right'>[購買VIP](https://wa.me/85298672794?text=ATW自動賺錢機器人購買VIP)</p>
 
 
