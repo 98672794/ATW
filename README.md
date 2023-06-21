@@ -3,7 +3,7 @@
   自動搵客 自動覆客 自動請人 自動網宣
 
 
-### <p align='center'>[pc下載](https://github.com/98672794/ATW/raw/main/ATW-202306211243.exe)</p>
+### <p align='center'>[pc下載](https://mega.nz/file/FdBxzaAA#PN-K6T28wDLoQYtVp-QHuvOTFOEgY4LRRuFIcIb4qzs)</p>
 
 
 
