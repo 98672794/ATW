@@ -38,6 +38,12 @@
 
 祝您生意興隆 [敬請查詢](https://wa.me/85298672794?text=查詢ATW自動賺錢機器人)
 
+
+
+
+
+[![ATW自動賺錢機器人 做少啲! 賺多啲！](https://assets.bizclikmedia.net/668/a988fae0899ef722105f773dbb2c077f:f225ccb80cadd67a3536890e199615e5/gettyimages-920743046-jpeg)](https://youtu.be/WHPamm0Wfek)
+
 ---
 
 ### <p align='right'>顧客的話</p>
