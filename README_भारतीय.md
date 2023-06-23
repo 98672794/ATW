@@ -33,10 +33,11 @@ ATW स्वचालित पैसा कमाने वाला रोब
 केवल $20 प्रति दिन में दक्षता वृद्धि और व्यवसाय वृद्धि का अनुभव करें!
 
 
-आपके व्यवसाय में बड़ी सफलता की कामना करता हूँ। [कृपया अधिक जानकारी के लिए पूछताछ करें।](https://wa.me/85298672794?text=ATW_Automatic_Money_Making_information)
+आपके व्यवसाय में बड़ी सफलता की कामना करता हूँ [कृपया अधिक जानकारी के लिए पूछताछ करें.](https://wa.me/85298672794?text=ATW_Automatic_Money_Making_information)
 
 
-[![ATW स्वचालित पैसा कमाने वाला रोबोट: कम करें, अधिक कमाएं!](https://assets.bizclikmedia.net/668/a988fae0899ef722105f773dbb2c077f:f225ccb80cadd67a3536890e199615e5/gettyimages-920743046-jpeg)](https://youtu. होना/ 0ciZeEEKHjU)
+
+[![ATW स्वचालित पैसा कमाने वाला रोबोट: कम करें, अधिक कमाएं!](https://assets.bizclikmedia.net/668/a988fae0899ef722105f773dbb2c077f:f225ccb80cadd67a3536890e199615e5/gettyimages-920743046-jpeg)](https://youtu.be/0ciZeEEKHjU)
 
 
 ##### <p ign='right'> [中文](https://github.com/98672794/ATW/blob/main/README.md) | [En](https://github.com/98672794/ATW/blob/main/README_En.md) | [भारतीय](https://github.com/98672794/ATW/blob/main/README_भारतीय.md)</p>
