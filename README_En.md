@@ -37,4 +37,4 @@ Wishing you great success in your business. [Please inquire for more information
 [![ATW Automatic Money-Making Robot: Do Less, Earn More!](https://assets.bizclikmedia.net/668/a988fae0899ef722105f773dbb2c077f:f225ccb80cadd67a3536890e199615e5/gettyimages-920743046-jpeg)](https://youtu.be/0ciZeEEKHjU)
 
 
-##### <p align='right'> [中文](https://github.com/98672794/ATW/blob/main/README.md) | [En](https://github.com/98672794/ATW/blob/main/README_En.md) | [भारतीय](https://github.com/98672794/ATW/blob/main/README_भारतीय.md) | [日本](https://github.com/98672794/ATW/blob/main/README_日本.md)</p>
+##### <p align='right'> [中文](https://github.com/98672794/ATW/blob/main/README.md) | [En](https://github.com/98672794/ATW/blob/main/README_En.md) | [भारतीय](https://github.com/98672794/ATW/blob/main/README_भारतीय.md) | [日本](https://github.com/98672794/ATW/blob/main/README_日本.md) | [عربي](https://github.com/98672794/ATW/blob/main/README_عربي.md)</p>
