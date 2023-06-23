@@ -35,10 +35,11 @@ ATW 自動お金稼ぎロボット: 作業を減らして、より多くの利�
 あなたのビジネスが大成功することを祈っています。 [詳しくはお問い合わせください。](https://wa.me/85298672794?text=ATW_Automatic_Money_Making_information)
 
 
-[![ATW 自動お金稼ぎロボット: 作業を減らして、より多くの収入を得る!](https://assets.bizclikmedia.net/668/a988fae0899ef722105f773dbb2c077f:f225ccb80cadd67a3536890e199615e5/gettyimages-920743046-jpeg)](https:// youtube.be/ 0ciZeEEKHjU)
+[![ATW 自動お金稼ぎロボット: 作業を減らして、より多くの収入を得る!](https://assets.bizclikmedia.net/668/a988fae0899ef722105f773dbb2c077f:f225ccb80cadd67a3536890e199615e5/gettyimages-920743046-jpeg)](https://youtu.be/0ciZeEEKHjU)
 
 
 
 ##### <p align='right'> [中文](https://github.com/98672794/ATW/blob/main/README.md) | [En](https://github.com/98672794/ATW/blob/main/README_En.md) | [भारतीय](https://github.com/98672794/ATW/blob/main/README_भारतीय.md)</p> | [日本](https://github.com/98672794/ATW/blob/main/README_日本.md)</p>
 
-日本
+
+
