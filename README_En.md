@@ -3,7 +3,7 @@ ATW Automatic Money-Making Robot: Do Less, Earn More!
 
 ### <p align='center'>[pc download](https://mega.nz/file/hJgkhBwD#SVsG2FgfMZ--TPg0Vo3PO4joIpgyFOlTH2WizqWmzsw)</p>
 
-##### <p align='right'>UpData 202306211928 </p>
+##### <p align='right'>Update Date  202306211928 </p>
 #### <p align='right'>[Buy VIP](https://wa.me/85298672794?text=ATW_get_VIP)</p>
 
 
