@@ -1,12 +1,12 @@
 ATW स्वचालित पैसा कमाने वाला रोबोट: कम करें, अधिक कमाएं!
 
 
-### <p ign='center'>[पीसी डाउनलोड](https://mega.nz/file/hJgkhBwD#SVsG2FgfMZ--TPg0Vo3PO4joIpgyFOlTH2WizqWmzsw)</p>
+### <p align='center'>[पीसी डाउनलोड](https://mega.nz/file/hJgkhBwD#SVsG2FgfMZ--TPg0Vo3PO4joIpgyFOlTH2WizqWmzsw)</p>
 
 
-##### <p ign='right'>अद्यतन दिनांक 202306211928 </p>
+##### <p align='right'>अद्यतन दिनांक 202306211928 </p>
 
-#### <p ign='right'>[VIP खरीदें](https://wa.me/85298672794?text=ATW_get_VIP)</p>
+#### <p align='right'>[VIP खरीदें](https://wa.me/85298672794?text=ATW_get_VIP)</p>
 
 
 ---
@@ -40,4 +40,4 @@ ATW स्वचालित पैसा कमाने वाला रोब
 [![ATW स्वचालित पैसा कमाने वाला रोबोट: कम करें, अधिक कमाएं!](https://assets.bizclikmedia.net/668/a988fae0899ef722105f773dbb2c077f:f225ccb80cadd67a3536890e199615e5/gettyimages-920743046-jpeg)](https://youtu.be/0ciZeEEKHjU)
 
 
-##### <p ign='right'> [中文](https://github.com/98672794/ATW/blob/main/README.md) | [En](https://github.com/98672794/ATW/blob/main/README_En.md) | [भारतीय](https://github.com/98672794/ATW/blob/main/README_भारतीय.md)</p>
+##### <p align='right'> [中文](https://github.com/98672794/ATW/blob/main/README.md) | [En](https://github.com/98672794/ATW/blob/main/README_En.md) | [भारतीय](https://github.com/98672794/ATW/blob/main/README_भारतीय.md)</p>
