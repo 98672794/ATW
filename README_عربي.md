@@ -4,7 +4,7 @@
 ### <p align='center'> [تنزيل الكمبيوتر](https://mega.nz/file/hJgkhBwD#SVsG2FgfMZ--TPg0Vo3PO4joIpgyFOlTH2WizqWmzsw) </p>
 
 ##### <p align='right'> تاريخ التحديث 202306211928 </p>
-#### <p align='right'> [Buy VIP](https://wa.me/85298672794؟text=ATW_get_VIP) </p>
+#### <p align='right'> [Buy VIP](https://wa.me/85298672794?text=ATW_get_VIP) </p>
 
 
 -
@@ -31,7 +31,7 @@
 جرب تعزيز الكفاءة ونمو الأعمال مقابل 20 دولارًا فقط في اليوم!
 
 
-أتمنى لك التوفيق والنجاح في عملك. [يرجى الاستفسار للحصول على مزيد من المعلومات.] (https://wa.me/85298672794؟text=ATW_Automatic_Money_Making_information)
+أتمنى لك التوفيق والنجاح في عملك. (https://wa.me/85298672794?text=ATW_Automatic_Money_Making_information)[يرجى الاستفسار للحصول على مزيد من المعلومات.]
 
 
 [! [الروبوت الآلي لكسب المال من ATW: أنجز أقل ، واكسب المزيد!](https://assets.bizclikmedia.net/668/a988fae0899ef722105f773dbb2c077f:f225ccb80cadd67a3536890e199615e5/gettyimages-920743046-jpeg)](https://youtu.be/0ciZeEEKHjU)
