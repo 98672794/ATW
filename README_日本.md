@@ -39,7 +39,6 @@ ATW 自動お金稼ぎロボット: 作業を減らして、より多くの利�
 
 
 
-##### [中文](https://github.com/98672794/ATW/blob/main/README.md)|[En](https://github.com/98672794/ATW/blob/main/README_En.md)|[भारतीय](https://github.com/98672794/ATW/blob/main/README_भारतीय.md)</p>|[日本](https://github.com/98672794/ATW/blob/main/README_日本.md)
-
+##### <p align='right'> [中文](https://github.com/98672794/ATW/blob/main/README.md) | [En](https://github.com/98672794/ATW/blob/main/README_En.md) | [भारतीय](https://github.com/98672794/ATW/blob/main/README_भारतीय.md) | [日本](https://github.com/98672794/ATW/blob/main/README_日本.md)</p>
 
 
