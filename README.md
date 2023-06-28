@@ -3,7 +3,7 @@
   自動搵客 自動覆客 自動請人 自動網宣
 
 
-### <p align='center'>[pc下載](https://mega.co.nz/#!lZ5wjLbZ!ihkt02xv515cbQLCKdLzILhCHcdmecTalQy5Peb2YRs)</p>
+### <p align='center'>[pc下載](死死死)</p>
 
 
 
