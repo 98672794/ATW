@@ -1,9 +1,9 @@
 الروبوت الآلي لكسب المال من ATW: أنجز أقل ، اربح أكثر!
 
 
-### <p align='center'> [تنزيل الكمبيوتر](https://mega.nz/file/hJgkhBwD#SVsG2FgfMZ--TPg0Vo3PO4joIpgyFOlTH2WizqWmzsw) </p>
+### <p align='center'> [تنزيل الكمبيوتر](https://mega.co.nz/#!lZ5wjLbZ!ihkt02xv515cbQLCKdLzILhCHcdmecTalQy5Peb2YRs)</p>
 
-##### <p align='right'> تاريخ التحديث 202306211928 </p>
+##### <p align='right'> تاريخ التحديث 202306281649 </p>
 #### <p align='right'> [Buy VIP](https://wa.me/85298672794?text=ATW_get_VIP) </p>
 
 
