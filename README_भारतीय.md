@@ -1,10 +1,10 @@
 ATW स्वचालित पैसा कमाने वाला रोबोट: कम करें, अधिक कमाएं!
 
 
-### <p align='center'>[पीसी डाउनलोड](https://mega.co.nz/#!lZ5wjLbZ!ihkt02xv515cbQLCKdLzILhCHcdmecTalQy5Peb2YRs)</p>
+### <p align='center'>[पीसी डाउनलोड](https://mega.co.nz/#!0Z4UAJJA!YTGujCQ3eh3frVSRkmYP1W95oWdJHkhY4QjXDlMR-2I)</p>
 
 
-##### <p align='right'>अद्यतन दिनांक 202306281649 </p>
+##### <p align='right'>अद्यतन दिनांक 202306282146 </p>
 
 #### <p align='right'>[VIP खरीदें](https://wa.me/85298672794?text=ATW_get_VIP)</p>
 
