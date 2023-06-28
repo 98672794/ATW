@@ -3,12 +3,12 @@
   自動搵客 自動覆客 自動請人 自動網宣
 
 
-### <p align='center'>[pc下載](死死死)</p>
+### <p align='center'>[pc下載](https://mega.co.nz/#!0Z4UAJJA!YTGujCQ3eh3frVSRkmYP1W95oWdJHkhY4QjXDlMR-2I)</p>
 
 
 
 
-##### <p align='right'>更新日期 202306281649 </p>
+##### <p align='right'>更新日期 202306282146 </p>
 #### <p align='right'>[購買VIP](https://wa.me/85298672794?text=ATW自動賺錢機器人購買VIP)</p>
 
 
