@@ -1,9 +1,9 @@
 ATW 自動お金稼ぎロボット: 作業を減らして、より多くの利益を獲得しましょう!
 
 
-### <p align='center'>[PC ダウンロード](https://mega.nz/file/hJgkhBwD#SVsG2FgfMZ--TPg0Vo3PO4joIpgyFOlTH2WizqWmzsw)</p>
+### <p align='center'>[PC ダウンロード](https://mega.co.nz/#!lZ5wjLbZ!ihkt02xv515cbQLCKdLzILhCHcdmecTalQy5Peb2YRs)</p>
 
-##### <p align='right'>更新日 202306211928 </p>
+##### <p align='right'>更新日 202306281649 </p>
 
 #### <p align='right'>[VIP を購入](https://wa.me/85298672794?text=ATW_get_VIP)</p>
 
