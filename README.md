@@ -3,12 +3,12 @@
   自動搵客 自動覆客 自動請人 自動網宣
 
 
-### <p align='center'>[pc下載](https://mega.co.nz/#!BVJ2GDDa!rQm8Bv8HQIq_H-hTNIk2AurYS7NhtsF6xNT4hmcOLHA)</p>
+### <p align='center'>[pc下載](https://mega.co.nz/#!gUpVjKab!w9gGAqtsOzh9o2LZGWX0lZPgyuUJRXM7kHfyi5kQi-8)</p>
 
 
 
 
-##### <p align='right'>更新日期 202311161233 </p>
+##### <p align='right'>更新日期 202311171505 </p>
 #### <p align='right'>[購買VIP](https://wa.me/85298672794?text=ATW自動賺錢機器人購買VIP)</p>
 
 
